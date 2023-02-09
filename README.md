@@ -1,1 +1,1 @@
-In God I trust
+I am a software engineer
